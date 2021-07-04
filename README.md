@@ -11,7 +11,7 @@ Key features -
 
 Do Enjoy!
 
-Drive Link for external download [here](https://drive.google.com/drive/folders/1A7QulTMp9E2JLp491FAi_e0fKfPXYu3T?usp=sharing)
+Drive Link for external download: [Installer](https://drive.google.com/drive/folders/1A7QulTMp9E2JLp491FAi_e0fKfPXYu3T?usp=sharing)
 
 Contact -
-Email : [Gmail](www.ishan.achinta1@gmail.com)
+Email : www.ishan.achinta1@gmail.com
